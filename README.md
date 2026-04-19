@@ -1,1 +1,0 @@
-# minamar7.github.io
